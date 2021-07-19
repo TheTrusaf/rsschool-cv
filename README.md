@@ -1,1 +1,1 @@
-# rsschool-cv
+https://thetrusaf.github.io/rsschool-cv/cv
